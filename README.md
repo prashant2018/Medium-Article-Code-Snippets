@@ -1,5 +1,5 @@
 ## Medium Profile
-[https://medium.com/@prashant2018](https://medium.com/@prashant2018/fun-with-big-data-76bc65a9d9fd)
+[https://medium.com/@prashant2018](https://medium.com/@prashant2018)
 
 ## Medium Stories
 
